@@ -1,3 +1,5 @@
+# Hi, I'm Sijah A K ! 👋
+
 
 ## 🚀 About Me
 I'm a Teacher by Profession ...
@@ -13,6 +15,5 @@ I'm a Teacher by Profession ...
 [![twitter](https://img.shields.io/badge/twitter-1DA1F2?style=for-the-badge&logo=twitter&logoColor=white)](https://twitter.com/)
 
   
-# Hi, I'm Sijah A K ! 👋
 
   
