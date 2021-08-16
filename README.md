@@ -2,7 +2,7 @@
 
 
 ## 🚀 About Me
-I'm a Teacher by Profession ...
+These days I work for Markaz Group Of Schools in Kozhikode Kerala as IT Coordinator and Facilitator!....
 
   
 ## 🛠 Skills
